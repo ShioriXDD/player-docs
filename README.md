@@ -16,7 +16,7 @@ Discord 服务器：[点击加入](https://uso.li/discord)
 
 ?> mc.usolia.net
 
-Cozzy Journey 服务器（Mod 服）
+Cozzy Journey 服务器（Mod 服，暂时关闭）
 
 ?> jr.mc.usolia.net
 
