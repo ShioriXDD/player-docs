@@ -10,7 +10,7 @@
 
 QQ 交流群：`641358246`
 
-Discord 服务器：[点击加入](https://discord.gg/hDNMZv5)
+Discord 服务器：[点击加入](https://uso.li/discord)
 
 ### 服务器地址
 
